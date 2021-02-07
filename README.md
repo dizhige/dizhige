@@ -19,13 +19,13 @@
 ##### :heavy_plus_sign: 备用2 ：https://avone01.xyz
 
 ##### :heart:D78X导航:heart:
-##### :heavy_plus_sign: 备用1 ：https://d78x.xyz
-##### :heavy_plus_sign: 备用2 ：https://d78x01.xyz
-##### :heavy_plus_sign: 备用3 ：https://d78x.buzz
+##### :star: 备用1 ：https://d78x.xyz
+##### :star: 备用2 ：https://d78x01.xyz
+##### :star: 备用3 ：https://d78x.buzz
 
 
 ##### :heart: :memo: 【邮箱联系方式】 ：dizhige@gmail.com
-##### :heart: :memo: 【地址鸽网址】 ：https://dizhige.com
+##### :heart: :memo: 【地址鸽网址】 ：https://dizhige.com (推荐使用谷歌浏览器打开)
 
 #### :sunglasses:重要提醒:sunglasses:请务必收藏本页面，避免迷路！
 
