@@ -5,8 +5,8 @@
 ##### :heavy_plus_sign: 备用2:point_right:  ：https://jjh02.xyz
 
 ##### :star:色大大视频:star:
-##### :heart: 备用1:point_right:  ：https://sedada01.xyz
-##### :heart: 备用2:point_right:  ：https://sedada.club
+##### :heart: 备用1 ：https://sedada01.xyz
+##### :heart: 备用2 ：https://sedada.club
 
 ##### :star:咪大大视频:star:
 ##### :heart: 备用1:point_right:  ：https://midada.xyz
