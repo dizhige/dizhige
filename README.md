@@ -3,20 +3,20 @@
 ================================
 
 ##### :heart:久久嗨视频:heart:
-##### :heavy_plus_sign: 备用1 ：https://jjh01.xyz
-##### :heavy_plus_sign: 备用2 ：https://jjh02.xyz
+##### :star: 备用1 ：https://jjh01.xyz
+##### :star: 备用2 ：https://jjh02.xyz
 
 ##### :heart:色大大视频:heart:
-##### :heavy_plus_sign: 备用1 ：https://sedada01.xyz
-##### :heavy_plus_sign: 备用2 ：https://sedada.club
+##### :star: 备用1 ：https://sedada01.xyz
+##### :star: 备用2 ：https://sedada.club
 
 ##### :heart:咪大大视频:heart:
-##### :heavy_plus_sign: 备用1 ：https://midada.xyz
-##### :heavy_plus_sign: 备用2 ：https://midada01.xyz
+##### :star: 备用1 ：https://midada.xyz
+##### :star: 备用2 ：https://midada01.xyz
 
 ##### :heart:AVONE视频:heart:
-##### :heavy_plus_sign: 备用1 ：https://avone.buzz
-##### :heavy_plus_sign: 备用2 ：https://avone01.xyz
+##### :star: 备用1 ：https://avone.buzz
+##### :star: 备用2 ：https://avone01.xyz
 
 ##### :heart:D78X导航:heart:
 ##### :star: 备用1 ：https://d78x.xyz
