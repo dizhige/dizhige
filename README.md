@@ -24,7 +24,7 @@
 ##### :heavy_plus_sign: 备用3 ：https://d78x.buzz
 
 
-##### :heart: :point_right: 【邮箱联系方式】 ：dizhige@gmail.com
+##### :rocket: :memo: 【邮箱联系方式】 ：dizhige@gmail.com
 
 #### :sunglasses:重要提醒:sunglasses:请务必收藏本页面，避免迷路！
 
